@@ -21,7 +21,7 @@ We wil firs instal Trolstar from our lor and savor opa3334 and den instal Potass
 
 ## Instoling Trolstor
 
-Forst go downlod th TrolstolerX ipa from or oficial websit iCrack an sidload usig yor perferdd metod. Chek ot our guieds on sidloding, which dont exist becuase we expec **YOU** 🫵 to make it.
+Forst go downlod th TrolstolerX ipa (eta s0n)from or oficial websit iCrack an sidload usig yor perferdd metod. Chek ot our guieds on sidloding, which dont exist becuase we expec **YOU** 🫵 to make it.
 
 Im jus kiding. We wil instol Trolinstlor useng Sidloody.
 
