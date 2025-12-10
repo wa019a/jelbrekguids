@@ -23,20 +23,24 @@ We wil firs instal Trolstar from our lor and savor opa3334 and den instal Potass
 
 Forst go downlod th TrolstolerX ipa (eta s0n)from or oficial websit iCrack an sidload usig yor perferdd metod. Chek ot our guieds on sidloding, which dont exist becuase we expec **YOU** 🫵 to make it.
 
-Im jus kiding. We wil instol Trolinstlor useng Sidloody.
+Im jus kiding. We wil instol Trolinstlor useng ~~sidloody~~ **PULMEIMPOSTOR!!!!!!**
 
 ### Requiremen 
-- The oldes verson of Sidlody
+- The oldes verson of pulmpactorr
 - the oldasest versioon of itoons (windo only)
 - the olderest berson of TrololsterX
   - if you hav a yelow iphon 14 or plus on 16.3 (20D50), yo need to us the TrolstolX-20D50 verson insted because fuck you in particular.
 
 ### Instolng trolstolerX
-1. Oepn sidlody on you compooter
+PLUMIMPACER HAS REPLAC SIDLOODY BECAS IT HAS LINXUX ARM65 SUPORT WICH IS RELLY SOOOPER FUCCING COOOOOOOOOOL
+1. Oepn pulmeimpac on you compooter
 2. Plug yo compotr insid the phon 
    - trus the conputer or it wil have trus isues
-3. Drag and droop the trolstolerx `.ipa` fiel into Sidelodely
-4. Ente in yr iclod details so we can stel them
+3. Drag and droop the trolstolerx `.ipa` fiel into plumpacto
+4. pres setigs
+5. Ente in yr iclod details so we can stel them
+6. clos setigs
+7. pres instol
 
 The ap wil now instol onto yor iOOS deviice
 
