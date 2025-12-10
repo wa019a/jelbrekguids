@@ -10,7 +10,7 @@ Ples do not faloe bad tutoral and fakr tuorals suc as ios.cfw.guide
 
 - **DONOT ASKFOR HELP IN JELBRK SOOB!** fuck you
 
-- u/NotAnOctoling is gae, all hail u/wa019
+- u/Automod69 is gae, all hail u/wa019
 
 - if yu are usig rootfull cockra1n;; you hav to eat mint choclat ice cream befor procedig. Failure to do so will lead us to send co0lstar to yor hous.
 
